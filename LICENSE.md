@@ -1,0 +1,1 @@
+All work done on this will be for my development and if any of it should help others I can allow it to be used for personal use. For those that might to use code or resources here for commercial use should contact me first via email.
